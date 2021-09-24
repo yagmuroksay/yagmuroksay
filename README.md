@@ -2,4 +2,4 @@
 - I am passionate about games and cybersecurity.
 
 
--Bringing you quality content since 2021!
+-Working on quality projects since 2021!
